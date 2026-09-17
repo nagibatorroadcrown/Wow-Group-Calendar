@@ -211,3 +211,6 @@ WoW Group Calendar is available as a full free version with all features unlocke
 - 💬 **[Community](https://www.softyne.com/about-us/)**
 
 Ready to enhance your World of Warcraft experience? **Download WoW Group Calendar free today and start organizing your adventures!**
+
+---
+**Last updated:** 2026-09-17 20:56:08 UTC
